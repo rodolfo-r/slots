@@ -1,1 +1,1 @@
-start gambling safely
+All in.
